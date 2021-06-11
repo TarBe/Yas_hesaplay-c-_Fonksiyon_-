@@ -1,2 +1,2 @@
-# Yas_hesaplay-c-_Fonksiyon_-
+# Yas_hesaplayıcı_Fonksiyon_-
 10 Satır :)
